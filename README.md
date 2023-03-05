@@ -5,7 +5,7 @@ Our team members
 - [Joshith Sai Ram Sunkara](https://github.com/joshith-sai-ram-sunkara)
 - [Bhavya Sri Jami](https://github.com/bhavyajami)
 - [Murali Krishna Tupakula](https://github.com/MuraliKrishna-Tupakula)
-- [Kumar Sai Chakka](https://github.com/kumarsai879)
+- [Kumar Sai Chakka](https://github.com/kumar-sai-chakka)
 ---
 - [Presentation Link](https://www.canva.com/design/DAFJjO3vJrI/evKdjBlYR5JE0kxTAx2Msw/view?utm_content=DAFJjO3vJrI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton) <br>
 
